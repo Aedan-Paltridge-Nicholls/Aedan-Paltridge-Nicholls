@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Aedan-Paltridge-Nicholls
 - 👀 I’m interested in ...Gaming, old cars, guns and planes
 - 🌱 I’m currently learning ... Programing at Yoobee
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Aedan432@gmail.com 
 
 <!---
